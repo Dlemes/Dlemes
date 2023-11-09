@@ -7,7 +7,7 @@
 
 - 💬 Consulte-me sobre **Excel, Power BI, DAX, Looker/Data Studio. **
 
-- 📫 Como eu encontro? **Danieloperadornr11@outlook.com**
+- 📫 Como me encontrar? **Danieloperadornr11@outlook.com**
 
 - 📄 Conheça minhas experiências [https://www.linkedin.com/in/daniel-est%C3%AAv%C3%A3o-696694158/](https://www.linkedin .com/in/daniel-est%C3%AAv%C3%A3o-696694158/)
 
